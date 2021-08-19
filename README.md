@@ -1,4 +1,4 @@
-<h1 align="center"><b> 🔞Queen Ashzi🔞  </b></h1>
+<h1 align="center"><b> 🧚‍♂️MIZUKI🔞  </b></h1>
 
 ![logo](https://telegra.ph/file/81e95f82feec6f1465eba.jpg)
 
