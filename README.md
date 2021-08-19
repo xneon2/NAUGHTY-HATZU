@@ -1,6 +1,6 @@
 <h1 align="center"><b> 🔞Queen Ashzi🔞  </b></h1>
 
-![logo](https://telegra.ph/file/cc0e2bb2add47047d0fc0.jpg)
+![logo](https://telegra.ph/file/81e95f82feec6f1465eba.jpg)
 
 
 
