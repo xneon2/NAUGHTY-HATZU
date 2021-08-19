@@ -1,4 +1,4 @@
-<h1 align="center"><b> 🔞Queen Hatzu⚡BOT🔞  </b></h1>
+<h1 align="center"><b> 🔞Queen Ashzi🔞  </b></h1>
 
 ![logo](https://telegra.ph/file/cc0e2bb2add47047d0fc0.jpg)
 
@@ -6,7 +6,7 @@
 
 
 <p align="center">
-    Project of  🔞Hatzu🪐 - Makes it easy and fun to use Whatsapp. Also first Made in sri lanka 🔞XNXX BOT for Whatsapp.
+    Project of  🔞Ashzi🪐 - Makes it easy and fun to use Whatsapp. Also first Made in sri lanka 🔞XNXX BOT for Whatsapp.
     <br>
         <a href="https://chat.whatsapp.com/GTgqgMTo7FoJ1GqdijshsX">Support Group</a> |
         <a href="https://Wa.me/+94766598862">TeenuhX Whatsapp </a> |
