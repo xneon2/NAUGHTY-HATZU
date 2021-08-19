@@ -57,11 +57,11 @@
 [![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/xneon2/NAUGHTY-HATZU)
 
 ---------------------------------
-#🔞ප්‍රධාන විධානය : .nslist
+# 🔞ප්‍රධාන විධානය : .nslist
 
-#🔞 අණු විධාන ලැයිස්තුව : .nsmedia
+# 🔞 අණු විධාන : .nsmedia
 
-#🔞NSFW ලැයිස්තුව
+# 🔞NSFW ලැයිස්තුව
 
 *◁○Neutro 🔞Panel ○▷*
 
